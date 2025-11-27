@@ -80,6 +80,21 @@ https://github.com/user-attachments/assets/474c9540-cba1-446b-a127-08b30f4af625
 
 https://github.com/user-attachments/assets/bab7595c-5a1d-4967-a3a6-9de34fcfb6e1
 
+## AI运维中心
+
+
+https://github.com/user-attachments/assets/0eb1740b-7574-4f89-96eb-eca6b017929a
+
+
+## Miner-U文档解析
+
+https://github.com/user-attachments/assets/9ba648f4-6735-4496-b787-37fdbe66c480
+
+
+
+
+
+
 
 
 
